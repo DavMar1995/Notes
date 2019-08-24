@@ -1,1 +1,1 @@
-Sorry, I deleted tje intital content.
+Sorry, I deleted the intital content.
